@@ -1,9 +1,2 @@
----
-tags:
-  - github
-  - TIL
----
 # TIL
-
-
 
