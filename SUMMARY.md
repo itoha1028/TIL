@@ -2,7 +2,8 @@
 
 * [TIL](README.md)
 * [english](english/README.md)
-  * [Rarejob](english/rarejob.md)
+  * [Rarejob\(November, 2020\)](english/rarejob.md)
+  * [VocabularyBook](english/vocabularybook.md)
 * [dev](dev/README.md)
   * [環境構築編](dev/nodejs.md)
   * [Derby実装メモ](dev/apachederby.md)
