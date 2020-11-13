@@ -57,11 +57,15 @@ relax\[ri-laks\]
 
 複数形のsや、a/anを付け忘れる傾向
 
-VOCABULARY/PRONUNCIATION指摘なし
+No new wards/No miss pronunciation
 
- 
+##  11/14
 
+### The P Sound and the B Sound
 
+### The S Sound and the Z Sound
+
+No new wards.
 
 
 
