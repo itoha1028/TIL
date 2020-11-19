@@ -67,5 +67,43 @@ No new wards/No miss pronunciation
 
 No new wards.
 
+## 11/17
+
+### Jissen Business 7-8-2
+
+No correction.
+
+## 11/18
+
+### Jissen Business 7-8-3
+
+#### Vocabulary
+
+* **Avid** means eager（熱心な）
+
+#### PRONUNCIATION
+
+* expertise \[ ek-sper-TEEZ \]
+* avid \[ AV-id \]
+* concoctions \[ kon-KOK-shuhns \]
+
+## 11/19
+
+### Jissen Business 7-8-4
+
+#### Vocabulary
+
+**power bank** means Mobile battery charger
+
+## 11/20
+
+### Jissen Business 7-8-5 Review
+
+#### PRONUNCIATION
+
+* expertise \[ ek-sper-TEEZ \]
+
+
+
 
 
