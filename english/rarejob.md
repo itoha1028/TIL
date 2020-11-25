@@ -103,7 +103,21 @@ No correction.
 
 * expertise \[ ek-sper-TEEZ \]
 
+## 11/21
 
+### Jissen Business 7-9-1 Networking
+
+#### PRONUNCIATION
+
+* acquaintance
+
+## 11/26
+
+### Jissen Business 7-9-2 Product Presentation
+
+#### WORDS
+
+* Rivals \(ライバル\)
 
 
 
