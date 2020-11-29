@@ -123,7 +123,7 @@ No correction.
 
 ### Jissen Business 7-9-3 Promotional Brochures
 
-### PRONUNCIATION
+#### PRONUNCIATION
 
 * brochure \[broh-SHOOR\]
 * procedures\[sai-kee-A-truhk\]
@@ -135,8 +135,18 @@ No correction.
 * warranty\[WAW · ruhn · tee\]
 * accessories \[ak-SES-uh-rees\]
 
-### WORD
+#### WORDS
 
 * tailored - 仕立てる
 * psychiatric - 精神的
+
+## 11/29
+
+### PRONUNCIATION\(The V sound and the W sound\)
+
+#### WORD
+
+* Whoa
+
+
 
