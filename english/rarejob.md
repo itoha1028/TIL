@@ -148,5 +148,11 @@ No correction.
 
 * Whoa
 
+## 11/30
 
+### Jissen Business 7-9-4 Invitation to a Trade Show
+
+#### WORD
+
+* enthusiastic - showing intense and eager enjoyment, interest, or approval; passionate
 
