@@ -119,5 +119,24 @@ No correction.
 
 * Rivals \(ライバル\)
 
+## 11/27
 
+### Jissen Business 7-9-3 Promotional Brochures
+
+### PRONUNCIATION
+
+* brochure \[broh-SHOOR\]
+* procedures\[sai-kee-A-truhk\]
+* psychiatric\[pruh-SEE-jer\]
+* procedure\[pruh-SEE-jer\]
+* delectable\[dih-LEK-tuh-buhl\]
+* complimentary\[KAAM · pluh · men · tr · ee\]
+* premium \[PREE-mee-uhm\]
+* warranty\[WAW · ruhn · tee\]
+* accessories \[ak-SES-uh-rees\]
+
+### WORD
+
+* tailored - 仕立てる
+* psychiatric - 精神的
 
