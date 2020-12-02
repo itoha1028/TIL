@@ -2,6 +2,7 @@
 
 * [TIL](README.md)
 * [english](english/README.md)
+  * [Rarejob\(December, 2020\)](english/rarejob-december-2020.md)
   * [Rarejob\(November, 2020\)](english/rarejob.md)
   * [VocabularyBook](english/vocabularybook.md)
 * [dev](dev/README.md)
