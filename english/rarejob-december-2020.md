@@ -22,9 +22,29 @@ aviation - 航空
 
 #### WORD
 
-significantly – in an important or large way
+* significantly – in an important or large way
+* soar - to increase to a high level very quickly
 
-soar - to increase to a high level very quickly
+## 12/4
 
+### Jissen Business 7-10-3 Effective Bookkeeping
 
+#### Useful Information
+
+| Words | Meaning |
+| :--- | :--- |
+| Financial Statements | 財務諸表 |
+|  - Profit and Loss | 損益計算書 |
+|  - Balance Sheet | バランスシート（貸借対照表） |
+|  - Cash Flow Statement | キャッシュフロー計算書 |
+| Financial Records | 財務記録 |
+|  - Cash Recipts | 現金領収書 |
+|  - Cash Disbursements | 現金支払帳 |
+|  - Acounts Receivable | 売掛金 |
+
+#### WORD
+
+* disbursement - expense
+* on the fence - undesided
+* bookkeeping - The act of keeping and managing financial records
 
