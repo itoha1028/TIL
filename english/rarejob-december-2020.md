@@ -8,11 +8,11 @@
 
 ### Jissen Business 7-10-1 In the Red
 
-#### PRONUNCIATION
+#### Pronunciation
 
 discontinuation \(=ending\) \[dis-kuhn-tin-yoo-ey-shuhn\]
 
-#### WORD
+#### Word
 
 aviation - 航空
 
@@ -20,7 +20,7 @@ aviation - 航空
 
 ### Jissen Business 7-10-2 Business Status
 
-#### WORD
+#### Word
 
 * significantly – in an important or large way
 * soar - to increase to a high level very quickly
@@ -42,9 +42,59 @@ aviation - 航空
 |  - Cash Disbursements | 現金支払帳 |
 |  - Acounts Receivable | 売掛金 |
 
-#### WORD
+#### Word
 
 * disbursement - expense
 * on the fence - undesided
 * bookkeeping - The act of keeping and managing financial records
+
+## 12/5
+
+### PRONUNCIATION The V Sound and the W Sound
+
+### PRONUNCIATION The T Sound and the Z-H Sound
+
+## 12/7
+
+### Jissen Business 7-10-3 Effective Bookkeeping
+
+#### Expressions
+
+* \[Late filing of taxes\] may come to a bad end.
+* Getting professional acounting services is a business' best bet to get out of hot water.
+* \[Keeping up with the deadlines\] can steer \[the company\] in the right derection.
+
+#### PRONUNCIATION
+
+accurate\[ AK-yer-it \] managing\[MAN-ij-ing\] IMPROPER
+
+## 12/8
+
+### Jissen Business 7-10-4 Financial Report Summary
+
+#### Expressions
+
+* \[Arrow Holdings’\] total assets for the \[year\] then ended is \[$50 million\].
+* \[Losses incurred in the last \[year\] \[have increased\] company liability.
+* The company needs to keep an eye on \[the price of raw materials\].”
+
+## 1209
+
+### Jissen Business 7-10-5 Review
+
+
+
+## 1210
+
+### Jissen Business 7-11-1 A Virtual Team
+
+#### Expressions
+
+* The \[Centurion project\] will entail the outsourcing of a \[software design\] team.
+* There’s a talent pool in \[India\] where we can get \[software designers\].
+* The virtual team will keep us posted about their progress via \[e-mail and video calls\].
+
+#### Word
+
+* entail - 必然的に伴う
 
