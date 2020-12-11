@@ -78,13 +78,13 @@ accurate\[ AK-yer-it \] managing\[MAN-ij-ing\] IMPROPER
 * \[Losses incurred in the last \[year\] \[have increased\] company liability.
 * The company needs to keep an eye on \[the price of raw materials\].”
 
-## 1209
+## 12/9
 
 ### Jissen Business 7-10-5 Review
 
 
 
-## 1210
+## 12/10
 
 ### Jissen Business 7-11-1 A Virtual Team
 
@@ -97,4 +97,29 @@ accurate\[ AK-yer-it \] managing\[MAN-ij-ing\] IMPROPER
 #### Word
 
 * entail - 必然的に伴う
+
+## 12/11
+
+### Jissen Business 7-11-2
+
+#### Business Tourism
+
+* The city is renowned for \[its multicultural demographic\].
+* Businesses are thriving here because of \[the vastly different groups of customers\].
+* With its \[ethnic diversity\], the city can give you a leg up on the competition.
+
+#### Word
+
+* clientele - group of clients or customers necessitate - to require
+
+## 12/12
+
+### PRONUNCIATION The C-H Sound and the S-H Sound
+
+### PRONUNCIATION The Soft T-H Sound and the Hard T-H Sound
+
+#### Pronunciation
+
+* this
+* athlete
 
