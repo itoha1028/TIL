@@ -123,3 +123,44 @@ accurate\[ AK-yer-it \] managing\[MAN-ij-ing\] IMPROPER
 * this
 * athlete
 
+## 12/13
+
+### PRONUNCIATION The T-H-R Sound and the D-R Sound
+
+### PRONUNCIATION The Soft T-H Sound and the Hard T-H Sound
+
+## 12/15
+
+### Jissen Business 7-11-3
+
+#### Expressions
+
+* Companies press for offshoring because \[of the lack of skilled technical workers\].
+* \[Malaysia’s abundance of technical workers\] offers a competitive edge to companies.
+* An example of a company that succeeded because of offshoring is \[Marex\].”
+
+## 
+
+## 12/16
+
+### Jissen Business 7-11-4
+
+#### Warm up questions
+
+* What types of companies usually expand everseas?
+* Has your company expanded overseas?
+
+  **Expressions**
+
+* We think it's high time we expanded our business because \[of new emerging markets\].
+* We believe that we can cash in on the opportunities in \[Brazil\].
+* We hope we can count on your support as we establish our first overseas office.
+
+#### Words
+
+* count on - 頼りにする
+
+## 12/17
+
+### Jissen Business 7-11-5
+
