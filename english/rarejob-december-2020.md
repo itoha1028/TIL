@@ -164,3 +164,83 @@ accurate\[ AK-yer-it \] managing\[MAN-ij-ing\] IMPROPER
 
 ### Jissen Business 7-11-5
 
+
+
+
+
+## 12/18
+
+### Jissen Business 7-12-1  Energy Conservation
+
+#### Warm-up questions
+
+* What do you do to save energy in your office?
+* Does your company impose energy conservation rules in your office?
+  * I'm not sure that we have
+
+#### **Expressions**
+
+* We came up with an idea that requires everyone \[to limit printing documents\].
+* If we \[use online document-sharing apps\], we can help \[keep printing costs down\].
+* \[The personal use of printers\] is now strictly prohibited in the company.
+
+## 12/20
+
+### Jissen Business 7-12-1  Energy Conservation
+
+### Jissen Business 7-12-2 Businesses and the Environment
+
+#### Expressions
+
+* It has come to the company’s attention that \[using high-end lighting fixtures\] highly affects the environment.
+* The gradual process of \[switching to low-energy bulbs\] will be the best course of action.”
+* This initiative will generate \[savings and increase corporate accountability\].
+
+#### **Words**
+
+* foresee -predict
+
+### PRONUNCIATION The O-W Sound and the O-I Sound
+
+### PRONUNCIATION The Other U Sound and the O-O Sound
+
+## 12/21
+
+### Jissen Business 7-12-2 Businesses and the Environment
+
+## 12/22
+
+### Jissen Businee 7-12-2 Businesses and the Environment
+
+### Jissen Business 7-12-3 Paperless Workplace
+
+#### Expressions
+
+* To achieve \[an eco-friendly workplace\], the \[company\] went the extra mile by putting a paperless policy into effect.
+* This policy obliges the \[staff\] to \[cut back o printing\].
+* Executing this policy will spare the company the trouble of \[spending on paper\].
+
+
+
+## 12/23
+
+### Jissen Business 7-12-3 Paperless Workplace
+
+#### Words
+
+1. feat – an achievement
+2. sustainable – applying methods that do not destroy natural resources
+3. dose – an amount
+
+#### Pronunciation
+
+1. oblige \[uh-BLAHYJ\]
+2. comprehensive \[kom-pri-HEN-siv\]
+3. feat \[FEET\]
+4. perks \[purks\]
+5. pursuit \[per-SOOT\]
+6. obliges \[uh-BLAHY-juhz\]
+7. dealing \[DEE-ling\]
+
+
+
