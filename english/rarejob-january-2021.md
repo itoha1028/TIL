@@ -1,36 +1,5 @@
 # Rarejob\(January, 2021\)
 
-## 01/31
-
-### Tutor
-
-sandy
-
-### Jissen Business 8-5-2 Communication Breakdown
-
-#### Warm-up question
-
-* What are the common causes of bad phone call connections?
-  * Network connection
-  * Large noise
-  * Too small voices
-* How do you deal with bad connections during a phone call?
-  * 
-
-#### Expressions
-
-* I'm sorry, but there's some sort of interference on the line.
-* I didn't catch what you said about _**the customer's address**_.
-* I'm afraid I have to _**call you back**_ since _**the reception is really bad**_.
-
-#### Challenge
-
-personal 
-
-peter smith
-
-7864
-
 ## 01/30
 
 ### Tutor
@@ -49,6 +18,12 @@ SandyGee
    1. having technical difficulty
 4. send representative to other campany
    1. crutial issue
+
+
+
+### Jissen Business 8-6-1
+
+
 
 ## 01/29
 
