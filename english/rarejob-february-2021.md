@@ -1,5 +1,34 @@
 # Rarejob\(February, 2021\)
 
+## 02/03
+
+### Tutor
+
+Cocoi
+
+### Jissen Business 8-5-4 Solving Communication Issues
+
+#### Expressions
+
+* There is a pressing issue concerning _**internal communication in the office**_.
+* This complication was emphasized by _**the increase of misinformed employees**_.
+* We have to put forward _**a stricter e-mail policy**_ to iron this out.
+
+#### Practice 
+
+
+
+#### Challenge
+
+&lt;u&gt;Corrections&lt;/u&gt;
+
+* This complication was emphasized by the increasing risk of HAVING LOW-QUALITY deliverables.
+* We have to put forward AN online roundtable to iron this out.
+
+#### Next
+
+Jissen Business 8-5-5 Review
+
 ## 02/02
 
 ### Tutor
