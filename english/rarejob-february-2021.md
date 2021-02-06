@@ -1,5 +1,107 @@
 # Rarejob\(February, 2021\)
 
+## 02/07
+
+### Tutor
+
+ナタリー
+
+### Jissen Business 8-6-2 Social Media Strategy
+
+#### Warm-up questions
+
+
+
+#### Expressions 
+
+We plan to get this campain off the ground to _**increase brand recognition.**_
+
+I suggest we narrow down our online customer base to _**young professionals aged 20-30**_.
+
+_**Posting product testimonials**_ can set this strategy in motion.
+
+
+
+#### Pronunciation
+
+testimonials \[tes-tuh-moh-nee-uhl\]
+
+niche \[nich\]
+
+informative \[ in-fawr-muh-tiv \]
+
+#### Challenge
+
+We plan to get this campain off the ground to increase website traffic.
+
+I suggest we narrow down our online customer base to business professionals.
+
+Conducting online business lectures can set this strategy in momtion.
+
+#### Memo
+
+C-to-Cビジネスの例、retail
+
+
+
+## 02/06
+
+### Tutor
+
+Millett
+
+### Jissen Business 8-6-1 Types of Social Media
+
+#### Expressions
+
+* Social media is an online channel utilized for _**advertising products and services**_.
+* Having a strong online presence can help businesses _**reach more clients**_.
+* _**A social networking website**_ is the best platform for _**acquiring new customers**_.
+
+#### Practice
+
+* Step 1
+
+impleve customer service
+
+improve the way they handle the comments
+
+a microblogiing service is the best
+
+* Step 2
+
+atracting potentail xxx
+
+career fare
+
+connect to more applicants
+
+a blog is the best platform for job posting
+
+#### Challenge
+
+1. receiving customer feedback
+2. increase custmer's satisfaction
+3. a online servey website /receiving customer feedback
+
+#### Memo
+
+リスニングした内容に対して、与えられた文頭単語から始めて意味が通るように文を構築する（言い換え）練習が必要
+
+## 02/05
+
+### Tutor
+
+Garcia
+
+### Jissen Business 8-5-5 Review
+
+#### Challenge 1
+
+1. Overload is a commo problem
+2. reminders that  e-mail services have reduces no-shows 
+3. advantages of e-mail
+
 ## 02/03
 
 ### Tutor
