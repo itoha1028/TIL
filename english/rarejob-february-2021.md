@@ -1,5 +1,71 @@
 # Rarejob\(February, 2021\)
 
+## 02/17
+
+### Tutor
+
+Liza
+
+### Jissen Business 8-6-3 Webinar Details
+
+#### Challenge
+
+* This webinar is geared toward helping you deal with workplace conflicts.
+* It will be conducted on a platform that supports polls and surveys.
+* To take part in this session, call us at 210-4659 and guarantee yourself a slot.
+
+### Jissen Business 8-6-4 Business Blog Post
+
+#### Expressios
+
+* “\[H&H Inc.\] has set their sights on \[mass hiring data encoders\].”
+* “To make this happen, the company decided to \[partner with recruitment agencies\].”
+* They have come a long way since \[they started with only 50 employees\].”
+
+#### Word
+
+* partner - 動詞として使われることもある（To be a pertner of / To make a partnership）
+
+#### Practice
+
+
+
+## 02/15
+
+### Tutor
+
+モーアン
+
+* jogging
+* netflix
+
+### Jissen Business 8-6-3 Webinar Details
+
+#### Warm-up questions
+
+* What topics will make you interested in joining a webinar?
+* In what situations are webinars useful?
+
+#### Expressions
+
+This webinar is geared toward _**emphasizing the importance of social media marketing.**_
+
+It will be conducted on a platform that supports _**question-and-answer sessions**_.
+
+To take part in this session, _**click the Register Now button**_ and guarantee yourself a slog.
+
+#### Words
+
+* Conduct - \[名詞\]行動、運営 \[動詞\]指揮する、行う
+
+#### Step1
+
+Solutions to Team challenges
+
+#### Next
+
+Jissen Business 8-6-3 Challenge 2
+
 ## 02/07
 
 ### Tutor
@@ -40,7 +106,7 @@ Conducting online business lectures can set this strategy in momtion.
 
 #### Memo
 
-C-to-Cビジネスの例、retail
+C-to-Cビジネスの例: retail
 
 
 
