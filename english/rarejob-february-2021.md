@@ -1,5 +1,30 @@
 # Rarejob\(February, 2021\)
 
+## 02/19
+
+### Jissen Business 8-6-4 Business Blog Post
+
+#### Challenge
+
+1. Product imrovement
+2. ABC inc. has set their sights on product improvement.
+3. To make this happen, the company decided to 
+4. launch
+
+### Jissen Business 8-6-5 Review
+
+#### Correction
+
+`If the product did not achieve the customer's expect. This is setback.` 
+
+-&gt;
+
+`If the product doesn't meet the customer's expectations, it will be a setback.`
+
+#### Next
+
+Jissen Business 8-6-5 Review Challenge 3
+
 ## 02/17
 
 ### Tutor
@@ -28,7 +53,9 @@ Liza
 
 #### Practice
 
+#### Next
 
+Challenge
 
 ## 02/15
 
