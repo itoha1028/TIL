@@ -1,5 +1,131 @@
 # Rarejob\(February, 2021\)
 
+## 02/26
+
+Gladys
+
+#### Warm-up questions
+
+How do you propose solutions to a business problem?
+
+-&gt; FIrst of all I reveal the root cause, then show solution with some facts.
+
+What do you say when you disagree with proposed solution?
+
+-&gt; 
+
+#### Expressions
+
+* We need to devise a strategy \[for our booking procedures\].
+* If we want to avoid risking \[our commendable client service\], we could \[limit the number of reservations\].
+* This approach \[to gradually renovate the hotel\] seems plausible to me.
+
+#### Words
+
+devise - 考案する
+
+plausible\[PLAW-zuh-buhl \] - 最もらしい
+
+foresee - to predict
+
+detrimental - Causing harm \(Pysical injury\)
+
+suffice \[ suh-FAHYS\] - 十分である
+
+## 02/25
+
+#### Word
+
+plagiarism - 盗作
+
+Inquisitor - competiter
+
+Rumor - 
+
+#### Challenge
+
+our industry /as esycal as
+
+losing public strass is the
+
+
+
+gathaering evidence and immproving clebility
+
+### Next
+
+Jissen Business 8-7-2 Brainstorming Understand
+
+## 02/24
+
+### Jissen Business 8-7-1 Understanding Solutions
+
+Shane
+
+ケミストリー
+
+manufacturing for 10 year
+
+retire becaouse taking care kids
+
+matanity leave is short
+
+#### Warm-up questions
+
+What are the usual problems of a business?
+
+How do these problems affect a company?
+
+#### Expressions
+
+* It appears that \[our new home cleaning service\] isn’t as \[successful\] as we thought it would be.
+* \[Losing clients\] is the price we have to pay.
+* We can overcome this by \[investing in staff training and high-technology equipment\].
+
+#### Words
+
+bankrupcy - 倒産
+
+complimentary gift - free gift
+
+circumstance - 状況
+
+threatened - 脅迫
+
+#### Pronunciations
+
+determining
+
+#### Practice step1
+
+our new valuabmeel opromo/ we thoughr as it whould be
+
+diner a dismayed / quality of the cuicinse
+
+Drop of our sales
+
+insuring quality control **on their deishes or foods**
+
+**Practice step2**
+
+current workflow ****
+
+faivlable as 
+
+negative feedback/ shiping schedule
+
+earning about reputation is the price 
+
+sending winner a complimentary gift
+
+## 02/23
+
+### Jissen Business 8-6-5 Review
+
+#### Corrections
+
+_**inc,**_ should be _**Inc,**_
+
 ## 02/19
 
 ### Jissen Business 8-6-4 Business Blog Post
