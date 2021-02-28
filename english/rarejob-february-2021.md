@@ -13,6 +13,8 @@ Karen
 * Why is brainstorming with your teammates important?
   * 「10人みんな異なるプロジェクトで働いていているから、月次のチームミーティングでそれぞれの状況を共有することが大事」と言おうとしたが表現できなかった
     * Since our teammates are working at different projects, it is important to gather monthly and share their status in the team meeting.
+* What are the possible disadvantages of brainstorming with a large group?
+  * Someone who has a strong opinion dicide everything without discussing others who are not familier with them.
 
 ### Jissen Business 8-7-3 
 
