@@ -1,5 +1,40 @@
 # Rarejob\(February, 2021\)
 
+## 02/28
+
+### Tutor
+
+Karen
+
+### Jissen Business 7-8-2
+
+#### Discussion
+
+* Why is brainstorming with your teammates important?
+  * 「10人みんな異なるプロジェクトで働いていているから、月次のチームミーティングでそれぞれの状況を共有することが大事」と言おうとしたが表現できなかった
+    * Since our teammates are working at different projects, it is important to gather monthly and share their status in the team meeting.
+
+### Jissen Business 8-7-3 
+
+#### 
+
+#### Expressions
+
+* The company raked in a total of \[$10 billion\] during \[the first half of the year\].
+* \[The leading footwear line\] went through turmoil when \[it lost a valuable stakeholder\].
+* The company saw its financial status recover after it \[strengthened its business ties\].
+
+#### Words
+
+* phoenix \[FEE-niks\]
+* divulges \[dih-VUHLJ-is\] - to reveal
+* frequent \[FREE-kwuhnt\] 
+* decade \[DEK-eyd\]
+
+### Next
+
+Jissen Business 8-7-3 Financial News Useful Vocabulary
+
 ## 02/26
 
 Gladys
@@ -31,6 +66,10 @@ foresee - to predict
 detrimental - Causing harm \(Pysical injury\)
 
 suffice \[ suh-FAHYS\] - 十分である
+
+#### next
+
+Jissen Business 8-7-2 Brainstorming Review
 
 ## 02/25
 
