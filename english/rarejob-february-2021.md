@@ -16,9 +16,7 @@ Karen
 * What are the possible disadvantages of brainstorming with a large group?
   * Someone who has a strong opinion dicide everything without discussing others who are not familier with them.
 
-### Jissen Business 8-7-3 
-
-#### 
+### Jissen Business 8-7-3 Financial News
 
 #### Expressions
 
