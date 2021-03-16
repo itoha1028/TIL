@@ -1,10 +1,40 @@
 # Rarejob\(March, 2021\)
 
+## 03/17
+
+### Tutor
+
+Imee（アイミー） 
+
+5 years
+
+### Jissen Business 8-8-3 Multinational Corporation
+
+#### Warm-up Question
+
+* What local brands in your country have expanded abroad?
+* In which countries have they expanded to?
+
+#### Expressions
+
+* \[Global Act\] is firmly anchored to \[its extensive range of professional expertise\].
+* The company is determined to gain some ground against \[its global competitors\].
+* Progressive affluence in \[the American and Australlian markets\] has evolved the landscape for \[cunsultancy services\].
+
+#### Words
+
+* Expertise -- \[ ek-sper-TEEZ\]
+* Strategic -- \[ struh-TEE-jik\]
+
+#### Next
+
+Practice Question 3
+
 ## 03/13
 
 ### Tutor
 
-
+Riza
 
 ### Jissen Business 8-8-2 Creative Ideas
 
@@ -13,10 +43,6 @@
 cater \[ KEY-ter \] - to provide
 
 determine \[ dih-TUR-min \]
-
-
-
-
 
 ## 03/12
 
